@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am actively engaged in the development of a comprehensive toolkit for algorithmic trading, aimed at enhancing the quantitative aspects of financial decision-making. Concurrently, I am gaining valuable experience as an Oracle intern, focusing on the refinement and optimization of a server status tool.<br><br>My professional pursuits extend to exploring the integration of artificial intelligence applications within defense frameworks, reflecting a keen interest in cutting-edge technologies and their potential impact across diverse sectors.<br><br>Feel free to reach out for further inquiries or collaborations.
+Computer Whisperer.<br><br>Feel free to reach out for further inquiries or collaborations.
 
 
 ## 🌐 Socials:
