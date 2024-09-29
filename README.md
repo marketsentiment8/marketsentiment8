@@ -1,5 +1,5 @@
 # 💫 About Me:
-Computer Whisperer.<br><br>Feel free to reach out for further inquiries or collaborations.
+Computer Whisperer, Drone enthusiast.<br><br>Feel free to reach out for further inquiries or collaborations.
 
 
 ## 🌐 Socials:
